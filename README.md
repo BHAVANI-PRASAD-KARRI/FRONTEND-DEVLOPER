@@ -47,8 +47,8 @@
 
 ## 📫 Connect with Me
 
-* 💼 LinkedIn: [Your LinkedIn Link]
-* 📧 Email: [yourmail@gmail.com](mailto:yourmail@gmail.com)
+* 💼 LinkedIn: bhavaniprasadkarri
+* 📧 Email:bhavaniprasadkarri123@gmail.com
 
 ---
 
